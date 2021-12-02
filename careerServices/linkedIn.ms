@@ -1,5 +1,7 @@
 LinkedIn:  (https://www.linkedin.com/in/kylee-marlin/)
 
+About: I wrote an essay basically... I'm not sure if that was the right path to go down.
+
 Connections: Sending Message;
 (https://www.linkedin.com/in/sarah-abodalo-b5826015b/)
 Sarah Abodalo
