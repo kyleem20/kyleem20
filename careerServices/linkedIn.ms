@@ -1,7 +1,7 @@
-LinkedIn:  https://www.linkedin.com/in/kylee-marlin/
+LinkedIn:  (https://www.linkedin.com/in/kylee-marlin/)
 
 Connections: Sending Message;
-https://www.linkedin.com/in/sarah-abodalo-b5826015b/
+(https://www.linkedin.com/in/sarah-abodalo-b5826015b/)
 Sarah Abodalo
 Hi Sarah,
 
